@@ -3,6 +3,9 @@
 
 [**MOSTBET**](https://tinyurl.com/ehn56am4) Azərbaycanda rəsmi saytı
 Ən böyük bukmeker kontorunun rəsmi veb-saytı Mostbet idman mərclərinin günün 24 saatı açıq olduğu etibarlı onlayn platformadır. Mostbet bukmeker kontoru təcrübəli oyunçunu müxtəlif video kitabxana ilə təəccübləndirir. Əgər siz Mostbet onlayn kazinosunda mərcləri qeydiyyatdan keçirmək istəyirsinizsə, sizə bu gün və indi işləyən güzgü lazım ola bilər.
+<a href="https://tinyurl.com/ehn56am4">
+![mostbet-az](https://github.com/user-attachments/assets/bc1a1515-b54d-45bd-acb6-688efecbea8f)
+</a>
 
 BC NOW MAC
 Güzgü funksionallıq və naviqasiya daxil olmaqla rəsmi funksiyanı təkrarlayır. Bukmeker kontorları şəxsi məlumatların məxfiliyinə, ani ödənişlərə və nəzakətli müştəri xidmətinə zəmanət verir.
